@@ -1,0 +1,2 @@
+# Namaskar
+namaskar duniya
